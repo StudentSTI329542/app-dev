@@ -5,7 +5,7 @@ My first repository
 ---
 **Action Sci-Fi Anime**
 ---
-*Wholesome*
+*Wholesome and Happy*
 ---
 **Shaoji, when I get you Shaoji**
 
